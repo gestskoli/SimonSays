@@ -16,4 +16,4 @@
 
 ### Myndband af virkni leiksins
 
-[![](https://img.youtube.com/FsQ9kMp2GoY/0.jpg)](https://www.youtube.com/watch?v=FsQ9kMp2GoY)
+[![](https://img.youtube.com/FsQ9kMp2GoY/1.jpg)](https://www.youtube.com/watch?v=FsQ9kMp2GoY)
